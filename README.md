@@ -1,3 +1,4 @@
-<p align="center"> <img src="https://64.media.tumblr.com/a428d8a6f7d346dc570c7dacc3b925d2/f6140e6d8c5fdeb8-8b/s250x400/90fd2e9caaa70a3c2e4e4e81a2d36a1ebd18b52c.gif">
+<p align="center">   <img src="https://64.media.tumblr.com/7991f13d4323589d8eccc561125c1750/35fcf0b5d8e86d87-79/s75x75_c1/8da278960e5017d10a0ac90cb54a4ee7debf1925.gif" alt="isaac pixel; made by dove-tears on tumblr"> <br>
+  work in progress. check out our main acc for info
 </p>
 
