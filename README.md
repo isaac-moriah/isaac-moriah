@@ -2,7 +2,8 @@
   <b>cain</b> aka ven. rot/it pronouns. real life vampiric angel <br>
   i like edmund games a lot. fixated on isaac tho Oops... <br>
   almost done with my first dead god. i hate daily runs. <br>
-  also please look at <a href="https://github.com/isaac-moriah/interaction-stuff"> my byf/dni</a> Okay? thank you
+  also please look at <a href="https://github.com/isaac-moriah/interaction-stuff"> my byf/dni</a> Okay? thank you <br>
+  this acc is almost exclusively on my tboi ponies btw
 <br>  <img src="https://64.media.tumblr.com/d685724b1bef8c4ec9380d9e35badd8a/01c4491c7b4e3a3f-93/s1280x1920/5c161b884592ccd960379c9c2b6dc21d79651dff.gif"
 </p>
 
