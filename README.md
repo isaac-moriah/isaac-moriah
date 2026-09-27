@@ -5,5 +5,5 @@
   <img src="https://64.media.tumblr.com/ba5800f898c49a8573009254890b60a1/0eaf7daac65a55ef-b4/s75x75_c1/bf6828a7e820b7e1f96555eb48c9e31dc67d117f.gif">
   <img src="https://64.media.tumblr.com/6ef8c5555b4a510386f358692ab7efe2/1a6ae2944316a1fa-c4/s75x75_c1/d9909121f5e014f872ee7ae416ad1f13cb1bfffa.gif"> 
   <br>
-  <i> pride! greed! <a href="https://https://github.com/renchanting">wrath</a>! envy! lust! gluttony and sloth! </i>
+  <i> pride! greed! <a href="https://github.com/renchanting">wrath</a>! envy! lust! gluttony and sloth! </i>
 </p>
